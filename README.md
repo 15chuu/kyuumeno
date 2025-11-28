@@ -12,5 +12,6 @@
 𓏵　⠀**always** __open__ [**to**]()
 			     cud and int *!!*
 					   [don't]() feel shy to approach me!
+					   [click me for basic dni](https://basic-dni.crd.co/)
                     ⠀ 　 
 ![](https://files.catbox.moe/ck9a0z.png)
