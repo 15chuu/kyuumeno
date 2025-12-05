@@ -1,17 +1,10 @@
-![](https://files.catbox.moe/g18kfv.png)
- ㅤ𓏵　⠀[𝓡entry](https://rentry.co/sakumeno)  ◟   [𝓐tabook](https://kyuumeno.atabook.org/)  ◟   [𝓢traw](https://kyuumeno.straw.page)             
-  𓎡𓎠𓎡𓎠𓎡                      𓎡𓎠𓎡𓎠𓎡                    𓎡𓎠𓎡𓎠𓎡
-   ![](https://files.catbox.moe/lhde61.jpg) 
-	    ㅤ𓏵　⠀⠀“ **𝒴ou're** __in__ [**pa**in]()
-			     𝓑ecause you were *𝓑orn*
-					  as [𝒴ourself]()⠀  ”
-                    ⠀ 　ྀི　　◞
-                    
-𓎡𓎠𓎡𓎠𓎡                      𓎡𓎠𓎡𓎠𓎡                    𓎡𓎠𓎡𓎠𓎡
+  ㅤㅤㅤㅤㅤㅤㅤ
+       ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
+      ㅤㅤㅤㅤㅤㅤㅤ       ♡ ㅤㅤㅤ [rentry](https://rentry.co/sakumeno)ㅤㅤㅤㅤㅤㅤㅤ       ㅤ[straw](https://kyuumeno.straw.page)ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ[atabook](https://kyuumeno.atabook.org)ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ       
+	  ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤ[( = ⩊ = )](https://youtu.be/MmxE3uI2mTU?si=aSfR27Qccdngt0su)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ        < - click pleaseㅤ  
+	
+	  
+ ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ          ![](https://komarev.com/ghpvc/?username=kyuumeno&label=+♡+&color=d1c9ad)
+     ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ       
 
-𓏵　⠀**always** __open__ [**to**]()
-			     cud and int *!!*
-					   [don't]() feel shy to approach me!
-					   [click me for basic dni](https://basic-dni.crd.co/)
-                    ⠀ 　 
-![](https://files.catbox.moe/ck9a0z.png)
+<img width="1500" height="500" alt="1000034783" src="https://github.com/user-attachments/assets/fd25d998-277c-4cbe-bc46-c7768872d270" />
