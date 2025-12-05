@@ -7,4 +7,5 @@
  ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ          ![](https://komarev.com/ghpvc/?username=kyuumeno&label=+♡+&color=d1c9ad)
      ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤ       
 
-<img width="1500" height="500" alt="1000034783" src="https://github.com/user-attachments/assets/fd25d998-277c-4cbe-bc46-c7768872d270" />
+
+<p align="center"> <img src="https://github.com/user-attachments/assets/fd25d998-277c-4cbe-bc46-c7768872d270" /></p>
